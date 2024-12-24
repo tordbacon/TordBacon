@@ -4,6 +4,8 @@ he/him only. I'm queer and i'm dating another man. ^_^...
 
 Do not copy or take any inspiration from my skins, thank you.
 
+(Update: SINGLE!!!!!!)
+
 <!---
 TordBacon/TordBacon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
