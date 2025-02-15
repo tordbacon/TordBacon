@@ -1,3 +1,2 @@
-  
-⭑    ![Alt](https://64.media.tumblr.com/48f88d00c79595a63a38e0bf5a5a736c/1437be4557f0d89d-3f/s500x750/cdc271d23a7637040763e134243b59523025230f.gifv) 
+   ![Alt](https://media1.tenor.com/m/_OGH3C_w1Q0AAAAd/tord-tord-fnf.gif) 
 
