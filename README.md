@@ -2,3 +2,6 @@
 
 [𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/tordbacon) ⌣ [𝗦𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://tordbacon.straw.page) ⌣ [𝗜𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺](https://www.instagram.com/tordbacon/profilecard/?igsh=MWJ2czlpN29iN21y) ◞ [𝗚𝘂𝗲𝘀𝘁𝗯𝗼𝗼𝗸](https://tordbacon.atabook.org/)
 
+![Alt](https://img1.picmix.com/output/stamp/normal/9/6/1/3/2393169_326ed.gif)
+
+
