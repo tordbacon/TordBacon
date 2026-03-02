@@ -1,3 +1,3 @@
 <p align="center">
-  **This text will be centered.**
+  <b>wip</b>
 </p>
