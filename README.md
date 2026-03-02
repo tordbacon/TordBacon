@@ -1,3 +1,3 @@
 <p align="center">
   <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTexfDlpeczYBYsa5N0AKvAlQZzUNzMP-Kdm3yHK_3rrSyqJRkP5jHFgRC4&s=10" height="170" width="170"> <br> <b>TORD</b> <img src="https://i.imgur.com/ImbXXrY.gif"> <s>THORNTON</s><b>.</b> <small>( only s/o . hii tom <img src="https://i.imgur.com/tcDoZOc.gif"> )</small><br> <u>commu</u>nist . artist . usually anonymous <br> <br>
- <img src="https://i.imgur.com/sN4X4wp.gif"> <a href="https://tordbacon.atabook.org/">atabook</a> <img src="https://i.imgur.com/AaXoL2S.gif"> <br> <b> fyi</b> . im not looking 4 friends . parasocial ppl weird me out . </p>
+ <img src="https://i.imgur.com/sN4X4wp.gif"> <a href="https://tordbacon.atabook.org/">atabook</a> <img src="https://i.imgur.com/AaXoL2S.gif"> <br> <b> fyi</b> . im not looking 4 friends . parasocial ppl weird me out . <br> <img src="https://file.garden/Zw2UAMMxh3sEB3vx/tomtord%20gif"> <br> <b>me and my bf r #tomtord irl</b> !!</p>
